@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @usooptimizer
+- 👀 I’m interested in Gaming, editing
+- 🌱 I’m currently learning C++
+- 📫 How to reach me: Add me on discord .trikka.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Im a youtuber
